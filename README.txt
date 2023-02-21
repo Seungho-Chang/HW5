@@ -1,2 +1,0 @@
-Daniel Chang
-Chicago Bulls
